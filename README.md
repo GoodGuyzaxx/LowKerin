@@ -1,2 +1,2 @@
-# lowkerin.github.io
+# LowKerin
 https://goodguyzaxx.github.io/lowkerin.github.io/
